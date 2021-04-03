@@ -5,7 +5,7 @@
 
 ·I'm a boy.
 
-·I like writing programmes so much that It takes me more than about 1 hour to write programmes every day.(It's a sentence which has many important grammars.)
+·Since I contact programming, I've liked writing programmes so much that It takes me more than about 1 hour to write programmes every day.(It's a sentence which has many important grammars.)
 
 ·I'm good at English and geography.
 
