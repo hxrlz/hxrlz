@@ -13,7 +13,7 @@
 
 ·I often get third in the exam.
 
-·I'm a English class representative and student in charge of studies in a class.
+·I'm a English class representative.
 
 <!---
 hxrlz/hxrlz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
