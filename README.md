@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hxrlz, a middle-school student.
-- 👀 I’m interested in writing programmes, learning geography and a girl who called Zhang Yuedi(I think I will die if Zhang Yuedi see it.).
+- 👀 I’m interested in writing programmes, learning geography.
 - 🌱 I’m currently learning c++ and python
 - 📫 If you want to talk with me, please email me at 2386480148@qq.com or 2656076494@qq.com or 743940154@qq.com or lslh2008@163.com.
 
