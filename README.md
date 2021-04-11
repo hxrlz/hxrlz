@@ -2,9 +2,7 @@ Warning, the introduction will be in Chinese——
 
 简单介绍一下我自己吧
 
-江苏南通人，现在在北京交大二分上学，初一的
-
-
+江苏南通人，现在在北京交大二分上学，初一三班的
 
 称号：
 
