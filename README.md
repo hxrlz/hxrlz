@@ -1,11 +1,10 @@
-- 👋 Hi, I’m @hxrlz, a middle-school student.
-- 👀 I’m interested in writing programmes, learning geography.
-- 🌱 I’m currently learning c++ , c and python
-- 📫 If you want to talk with me, please email me at 2386480148@qq.com or 2656076494@qq.com or 743940154@qq.com or lslh2008@163.com.
-
 Warning, the introduction will be in Chinese——
 
-江苏南通人，在北京上学，简单介绍一下我自己吧
+简单介绍一下我自己吧
+
+江苏南通人，现在在北京交大二分上学，初一的
+
+
 
 称号：
 
