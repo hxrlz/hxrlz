@@ -3,21 +3,48 @@
 - 🌱 I’m currently learning c++ , c and python
 - 📫 If you want to talk with me, please email me at 2386480148@qq.com or 2656076494@qq.com or 743940154@qq.com or lslh2008@163.com.
 
-·I'm a boy.
+Warning, the introduction will be in Chinese——
 
-·Since I contact programming, I've liked writing programmes so much that It takes me more than about 1 hour to write programmes every day.(It's a sentence which has many important grammars.)
+江苏南通人，在北京上学，简单介绍一下我自己吧
 
-·I'm good at English and geography.
+称号：
 
-·I'm not very well in Chinese and politics.
+北京交大二分初一三班英语课代表
 
-·I often get third in the exam.
+北京交大二分初一三班唯一一个会代码的
 
-·I'm a English class representative.
+北京交大二分初一三班著名身残志坚人士
 
-·@hacker-Fanjun is my e-friend.
+北京交大二分初一三班万年老三
 
-<!---
-hxrlz/hxrlz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+北京交大二分初一三班南斋孤云小组组长傀儡操控者
+
+北京交大二分初一三班南斋孤云小组组长继承人
+
+北京交大二分初一三班暗恋中队长人士（暗恋个屁，是个人都能看出来我tm喜欢她）
+
+北京交大二分初一三班中队长的自愿保镖
+
+北京交大二分初一三班南斋孤云小组数学组长
+
+北京交大二分初一三班钢琴学得最好人士
+
+北京交大二分初一三班宣委死党
+
+北京交大二分初一三班宣委手下员工
+
+北京交大二分初一三班三一哥小弟
+
+北京交大二分初一三班无论怎样总有免体的理由人士
+
+北京交大二分初一三班写英文最草人士
+
+北京交大二分初一三班语文代课老师老乡
+
+北京交大二分初一三班学习委员
+
+北京交大二分初一三班选择性不写作业患者
+
+北京交大二分初一三班著名重色（此处的色仅仅代表北京交大二分初一三班中队长）轻友患者
+
+北京交大二分初一三班著名考试掉链子患者
